@@ -1,11 +1,11 @@
 ---
 template: index-page
 slug: /
-title: Wyatt Morriss
-tagline: Graphic Designer
-featuredImage: /assets/toa-heftiba-0rlfirsdvzu-unsplash.jpg
+title: Rohini Dasan
+tagline: "Public Health and Medicine "
+featuredImage: /assets/864398026.jpg
 cta:
-  ctaText: Know more
+  ctaText: More About Me
   ctaLink: /about
 ---
-He is a award winning gaming graphic designer, based in sunny side of California. Working as Principal designer at Bethesda
+Hi, I am researcher in Epidemiology at the University of California Berkeley.
