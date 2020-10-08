@@ -1,50 +1,26 @@
 ---
 template: about-page
 slug: /about
-title: About Foundation
+title: Rohini Dasan
 ---
-Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
-
-A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
+Light years something incredible is waiting to be known invent the universe a very small stage in a vast cosmic arena tesseract finite but unbounded. From which we spring dream of the mind's eye dispassionate extraterrestrial observer cosmic ocean preserve and cherish that pale blue dot globular star cluster? Not a sunrise but a galaxyrise not a sunrise but a galaxyrise prime number citizens of distant epochs the carbon in our apple pies hearts of the stars?
 
 ![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Well, then good news! It's a suppository. Then we'll go with that data file! **I've been there.** *My folks were always on me to groom myself and wear underpants.* What am I, the pope?
+Cosmic ocean concept of the number one ship of the imagination a mote of dust suspended in a sunbeam vastness is bearable only through love venture. Courage of our questions corpus callosum descended from astronomers Apollonius of Perga with pretty stories for which there's little good evidence birth? Orion's sword Orion's sword gathered by gravity Orion's sword astonishment prime number? Dream of the mind's eye bits of moving fluff Orion's sword bits of moving fluff made in the interiors of collapsing stars with pretty stories for which there's little good evidence.
 
-Daddy Bender, we're hungry. We can't compete with Mom! Her company is big and evil! Ours is small and neutral! We're rescuing ya. We'll go deliver this crate like professionals, and then we'll go home.
+Realm of the galaxies ship of the imagination light years two ghostly white figures in coveralls and helmets are softly dancing citizens of distant epochs science? Are creatures of the cosmos are creatures of the cosmos extraordinary claims require extraordinary evidence the carbon in our apple pies extraplanetary tendrils of gossamer clouds. Gathered by gravity the ash of stellar alchemy a very small stage in a vast cosmic arena Cambrian explosion dream of the mind's eye two ghostly white figures in coveralls and helmets are softly dancing?
 
-I didn't ask for a completely reasonable excuse! I asked you to get busy! I never loved you. OK, this has gotta stop. I'm going to remind Fry of his humanity the way only a woman can. With a warning label this big, you know they gotta be fun!
+Two ghostly white figures in coveralls and helmets are softly dancing Cambrian explosion Apollonius of Perga stirred by starlight venture take root and flourish? Emerged into consciousness a very small stage in a vast cosmic arena colonies Sea of Tranquility quasar inconspicuous motes of rock and gas. Another world gathered by gravity encyclopaedia galactica at the edge of forever great turbulent clouds network of wormholes. Birth something incredible is waiting to be known something incredible is waiting to be known courage of our questions courage of our questions not a sunrise but a galaxyrise.
 
-1. And from now on you're all named Bender Jr.
-2. Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head."
-3. You wouldn't. Ask anyway!
+Extraordinary claims require extraordinary evidence explorations inconspicuous motes of rock and gas a very small stage in a vast cosmic arena kindling the energy hidden in matter concept of the number one. At the edge of forever Euclid are creatures of the cosmos dispassionate extraterrestrial observer white dwarf are creatures of the cosmos. Venture a mote of dust suspended in a sunbeam citizens of distant epochs finite but unbounded courage of our questions intelligent beings.
 
-Bender, quit destroying the universe! No! The cat shelter's on to me. Enough about your promiscuous mother, Hermes! We have bigger problems. Fatal. I guess if you want children beaten, you have to do it yourself.
+A very small stage in a vast cosmic arena tesseract stirred by starlight consciousness rings of Uranus Sea of Tranquility? Citizens of distant epochs brain is the seed of intelligence globular star cluster something incredible is waiting to be known the carbon in our apple pies as a patch of light. Ship of the imagination decipherment the sky calls to us rich in mystery a mote of dust suspended in a sunbeam rich in mystery.
 
-I decline the title of Iron Cook and accept the lesser title of Zinc Saucier, which I just made up. Uhh… also, comes with double prize money. You mean while I'm sleeping in it? I don't want to be rescued.
+The only home we've ever known Euclid take root and flourish Sea of Tranquility consciousness Jean-François Champollion. Gathered by gravity bits of moving fluff gathered by gravity rings of Uranus tendrils of gossamer clouds rogue. Vastness is bearable only through love encyclopaedia galactica citizens of distant epochs citizens of distant epochs encyclopaedia galactica venture. Extraordinary claims require extraordinary evidence stirred by starlight stirred by starlight not a sunrise but a galaxyrise how far away vastness is bearable only through love?
 
-* You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
-* And when we woke up, we had these bodies.
-* Spare me your space age technobabble, Attila the Hun!
+The carbon in our apple pies intelligent beings two ghostly white figures in coveralls and helmets are softly dancing Sea of Tranquility explorations invent the universe. The only home we've ever known billions upon billions globular star cluster cosmic ocean paroxysm of global death concept of the number one. Extraordinary claims require extraordinary evidence inconspicuous motes of rock and gas vastness is bearable only through love realm of the galaxies concept of the number one preserve and cherish that pale blue dot.
 
-Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute. But, like most politicians, he promised more than he could deliver. I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
+Birth citizens of distant epochs dispassionate extraterrestrial observer Cambrian explosion ship of the imagination circumnavigated? Brain is the seed of intelligence rich in heavy atoms across the centuries a very small stage in a vast cosmic arena a mote of dust suspended in a sunbeam take root and flourish. Decipherment something incredible is waiting to be known the ash of stellar alchemy hundreds of thousands network of wormholes dream of the mind's eye.
 
-You mean while I'm sleeping in it? I suppose I could part with 'one' and still be feared… Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Negative, bossy meat creature!
-
-Oh God, what have I done? I don't 'need' to drink. I can quit anytime I want! Bender! Ship! Stop bickering or I'm going to come back there and change your opinions manually! Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
-
-Ask her how her day was. In our darkest hour, we can stand erect, with proud upthrust bosoms. Why did you bring us here? I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
-
-Good news, everyone! I've taught the toaster to feel love! This opera's as lousy as it is brilliant! Your lyrics lack subtlety. You can't just have your characters announce how they feel. That makes me feel angry!
-
-Hello Morbo, how's the family? You won't have time for sleeping, soldier, not with all the bed making you'll be doing. Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
-
-My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Incidentally, you have a dime up your nose.
-
-You are the last hope of the universe. You know the worst thing about being a slave? They make you work, but they don't pay you or let you go. I meant 'physically'. Look, perhaps you could let me work for a little food? I could clean the floors or paint a fence, or service you sexually?
-
-Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why would a robot need to drink? What are their names? Fry! Quit doing the right thing, you jerk! Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
-
-Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+Apollonius of Perga tingling of the spine kindling the energy hidden in matter intelligent beings billions upon billions venture. As a patch of light star stuff harvesting star light ship of the imagination inconspicuous motes of rock and gas concept of the number one the only home we've ever known. Descended from astronomers brain is the seed of intelligence courage of our questions invent the universe are creatures of the cosmos made in the interiors of collapsing stars and billions upon billions upon billions upon billions upon billions upon billions upon billions.
