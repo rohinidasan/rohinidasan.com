@@ -79,13 +79,13 @@ module.exports = {
     {
       resolve: `gatsby-plugin-manifest`,
       options: {
-        name: `Foundation`,
-        short_name: `Foundation`,
+        name: `Rohini Dasan`,
+        short_name: `Rohini Dasan`,
         start_url: `/`,
         background_color: `#f7f0eb`,
-        theme_color: `#a2466c`,
+        theme_color: `#f2e7d3`,
         display: `standalone`,
-        icon: `static/assets/stackrole.png`,
+        icon: `static/assets/android-chrome-512x512.png`,
       },
     },
     'gatsby-plugin-offline',
